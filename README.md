@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Seksan168
 - 👀 I’m interested in web application 
-- 🌱 I’m currently learning in digital enginering year 4 student 
 - 😄 Pronouns: Guide
 - ⚡  If you feel you will lost yourself then look back to yourself ,What are you pass? 
 
